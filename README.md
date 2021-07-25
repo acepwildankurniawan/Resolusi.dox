@@ -6,3 +6,6 @@ Ini adalah resolusi saya ditahun ini
 -Dapat membuat blog sendiri
 -Mendapatkan nilai yang bagus di sekolah
 -Membuat web dengan baik dan benar
+-Menyelesaikan pkl dengan sebaik-baiknya
+-Membuat laporan dengan baik
+
